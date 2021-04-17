@@ -6,4 +6,4 @@ binance protocolos
 
 tapiocaswap.finance
 um novo conceito em trocas rapidas<br>
-<img src="https://t1.rg.ltmcdn.com/pt/images/4/5/3/tapioca_com_queijo_coalho_9354_600.jpg"></img>
+<img src="http://www.vitrine.elo7.com.br/tapiocakids"></img>
